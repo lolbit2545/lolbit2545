@@ -1,0 +1,3 @@
+- 👋 Hi, I’m lolbit2545 and im a trans girl
+- 👀 I’m interested in gamming, music and streaming
+- 📫 How to reach me one discord (at lolbit2545 - she/her#4186) and email (at gemmaclark2006@outlook.com)
